@@ -74,3 +74,4 @@ This category will contain a list of women essentials that will be made availabl
  https://www.instagram.com/naariempowered/
  https://www.linkedin.com/posts/jayashree-murugesan_hacklikeagirl-womenempowerment-womentechies21-activity-6777132203496280064-fLGx
  https://drive.google.com/file/d/180RxDLuNoCR7al7Qa7l1Av4qtaIizryX/view?usp=sharing
+ https://drive.google.com/file/d/1GUojM-ARqMml74OoBDRWW1nwBelJM-IG/view?usp=sharing
